@@ -8,5 +8,5 @@
 - 🌱 I’m currently learning EDUCATIONAL TECNOLOGY
 - 💞️ I’m looking to collaborate on Educational tecnology
 - 📫 How to reach me juanacarrazco@uninnova.mx
-- 😄 Pronouns: He/she
+- 😄 Pronouns: Her/she
 - ⚡ Fun fact: I love Cats and Dogs
