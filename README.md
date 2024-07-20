@@ -1,3 +1,8 @@
+
+
+
+
+
 - 👋 Hi, I’m Juany
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning EDUCATIONAL TECNOLOGY
